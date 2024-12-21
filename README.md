@@ -1,1 +1,1 @@
-https://raphahen.github.io/curriculo/
+https://raphahen.github.io/curriculo_new/
